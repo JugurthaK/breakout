@@ -4,8 +4,6 @@
 ### If you would like to discover the gameplay
 [![Break Out](https://img.youtube.com/vi/gLsd4F2ScRg/1.jpg)](https://www.youtube.com/watch?v=gLsd4F2ScRg)
 
-(Didnt that youtube image would be so creepy, sorry)
-
 *I let the comments i made for my professor*
 
 
